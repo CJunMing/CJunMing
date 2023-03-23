@@ -18,9 +18,8 @@ Here are some ideas to get you started:
 WIP
 
 Chiang Jun Ming </br>
-81132158
-junming955@hotmail.com
-linkedin.com/in/joshmadakor 
+81132158 < /br>
+junming955@hotmail.com < /br>
 
 INTRO
 
